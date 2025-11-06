@@ -1,2 +1,2 @@
 # programming
-collaborating with collage
+collaborating with colleague
